@@ -1,4 +1,4 @@
-
+Enhance Canva for macOS with Canva for macOS elite Extension: AI-enhanced-editing & preset-packs, the #1 extension. Includes AI-enhanced-editing and preset-packs for a smoother
 
 
 
